@@ -1,4 +1,4 @@
-![](https://view-counter.tobyhagan.com/?user={kidneythieves}&base=ee8842&accent=3c3c3c&user=sparks✨)
+![](https://view-counter.tobyhagan.com/?user={kidneythieves}&base=ee8842&accent=3c3c3c&user=sparks)
 
 
 
