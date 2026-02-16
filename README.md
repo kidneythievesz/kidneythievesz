@@ -1,3 +1,6 @@
+![](https://view-counter.tobyhagan.com/?user={kidneythieves}&base=ff0000&accent=3c3c3c&icon=true)
+
+
 
 
 lelelele ! 
